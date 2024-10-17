@@ -9,7 +9,8 @@ Issac at your service, m'lady (sorry if you're a guy)
 coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
 
 
-![image](https://github.com/user-attachments/assets/06c0beb9-2cbd-4cfc-af83-1fd6a4f38d77)
+![image](https://github.com/user-attachments/assets/5c72baf7-dbe8-4f88-9f65-d5661c0881d6)
+
 
 <!---
 grungedart/grungedart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
