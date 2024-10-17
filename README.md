@@ -1,19 +1,15 @@
-![580355bc0a1baf2e7a1068c1ff08f88c](https://github.com/user-attachments/assets/1c332137-6b99-47f8-b629-adacb3db7db5)
-
-Issac at your service, m'lady (sorry if you're a guy)
+Issac at your service, - THIS IS A WIP!!
 
 15, straight & polyamorous, single (hit me up ladies), not a FREAK!!
 
 coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
 
 
-![580355bc0a1baf2e7a1068c1ff08f88c](https://github.com/user-attachments/assets/1c332137-6b99-47f8-b629-adacb3db7db5)
+
 
 Fav franchises!! --- (wip)
 
-
-
-
+![580355bc0a1baf2e7a1068c1ff08f88c](https://github.com/user-attachments/assets/1c332137-6b99-47f8-b629-adacb3db7db5)
 
 
 <!---
