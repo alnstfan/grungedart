@@ -14,7 +14,9 @@ coolest and driest person you will ever meet ^^
 
 
 
-News: HAPPY HALLOWEEN GUYS!!                                      ![image](https://github.com/user-attachments/assets/39ff2b0e-ba1f-49f8-a28e-a4543a6641d5)
+News: HAPPY HALLOWEEN GUYS!!
+
+![image](https://github.com/user-attachments/assets/39ff2b0e-ba1f-49f8-a28e-a4543a6641d5)
 
 <!---
 grungedart/grungedart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
