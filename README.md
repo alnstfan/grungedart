@@ -1,6 +1,6 @@
-grungedart at your service
+grungedart at your service, m'lady
 
-FTM - He/Him, 15, not a FREAK!!
+FTM - He/Him, 15, likes women, not a FREAK!!
 
 coolest and driest person you will meet ^^
 <!---
