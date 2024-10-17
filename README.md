@@ -7,11 +7,11 @@ Issac at your service, m'lady (sorry if you're a guy)
 coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
 
 
-
+![580355bc0a1baf2e7a1068c1ff08f88c](https://github.com/user-attachments/assets/1c332137-6b99-47f8-b629-adacb3db7db5)
 
 Fav franchises!! --- (wip)
 
-![12203a249c46a7a9dfc7b848b35fd839](https://github.com/user-attachments/assets/9c2a7972-f462-4d77-9dce-21eb11931acd) 
+
 
 
 
