@@ -1,4 +1,4 @@
-Issac at your service, - THIS IS A WIP!!
+THIS IS A WIP GUYS!! Imma ask my cool friend to help me
 
 15, straight & polyamorous, single (hit me up ladies), not a FREAK!!
 
