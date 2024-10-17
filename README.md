@@ -7,7 +7,9 @@ Issac at your service, m'lady (sorry if you're a guy)
 15, straight & polyamorous, single (hit me up ladies), not a FREAK!! At least not that I know of
 
 coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
- 
+
+ ![image](https://github.com/user-attachments/assets/5e0105e3-a432-4ea0-94d6-4161c4dd1947)
+
 <!---
 grungedart/grungedart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
