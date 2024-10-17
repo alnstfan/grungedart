@@ -1,8 +1,4 @@
-THIS IS A WIP GUYS!! Imma ask my cool bestfriend to help me
-
-
-coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
-
+THIS IS A WIP!!
 
 ![580355bc0a1baf2e7a1068c1ff08f88c](https://github.com/user-attachments/assets/1c332137-6b99-47f8-b629-adacb3db7db5)
 
