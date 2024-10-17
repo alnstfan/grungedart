@@ -2,7 +2,7 @@
 
 
 
-grungedart at your service, m'lady (sorry if you're a guy)
+Issac at your service, m'lady (sorry if you're a guy)
 
 He/Him (FTM - trans) , 15, straight & polyamorous, single (hit me up ladies), not a FREAK!!
 
