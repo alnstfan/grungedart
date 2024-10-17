@@ -1,6 +1,5 @@
 THIS IS A WIP GUYS!! Imma ask my cool bestfriend to help me
 
-15, straight & polyamorous, single (hit me up ladies), not a FREAK!!
 
 coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
 
