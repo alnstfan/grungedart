@@ -4,11 +4,18 @@
 
 Issac at your service, m'lady (sorry if you're a guy)
 
-15, straight & polyamorous, single (hit me up ladies), not a FREAK!! At least not that I know of
+15, straight & polyamorous, single (hit me up ladies), not a FREAK!!
 
 coolest and driest person you will ever meet ^^ (if you're cool enough, you'll get my discord)
 
- ![image](https://github.com/user-attachments/assets/5e0105e3-a432-4ea0-94d6-4161c4dd1947)
+
+Fav franchises!! --- (wip)
+
+![12203a249c46a7a9dfc7b848b35fd839](https://github.com/user-attachments/assets/9c2a7972-f462-4d77-9dce-21eb11931acd) 
+
+
+
+
 
 <!---
 grungedart/grungedart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
