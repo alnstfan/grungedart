@@ -3,11 +3,10 @@
 
 
 
-
-    - About: 15, 
+    - About: 15,                                             . + 
                 straight (women ❤)
-                                   polyamourus
-                                              Bipolar Disorder
+                                   polyamourus    
+    + .                                        Bipolar Disorder
            
 
 
