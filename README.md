@@ -4,7 +4,7 @@
     About: 15, straight & poly (❤ women), bipolar disorder
          Check out my bestest best friend!! @slipnqt
 
-https://64.media.tumblr.com/65ae7333bcb11dc2dead32ef750f43a9/614281340573e9f5-f8/s250x400/6c676a9e51885ea91be597d6bdb6f962cf68296f.gifv 
+
 
 
 <!---
