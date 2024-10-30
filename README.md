@@ -2,7 +2,6 @@
 
 
 
-
     - About: 15,                                             . + 
                 straight (women ❤)
                                    polyamourus    
